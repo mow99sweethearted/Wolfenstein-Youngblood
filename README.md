@@ -222,4 +222,4 @@ Wolfenstein: Youngblood is available as a full free version for Windows, with al
 Take action now and download Wolfenstein: Youngblood for a thrilling gaming adventure! Experience the excitement of liberating Paris from the Nazis today!
 
 ---
-**Last updated:** 2026-09-29 13:27:17 UTC
+**Last updated:** 2026-09-29 18:55:31 UTC
